@@ -1,5 +1,5 @@
-## Hi there 👋
-
+oopaa!!! seja bem vindo ao perfil 👋 👋
+Me chamo Julia, sou estudante do primeiro ano do ensino médio!
 <!--
 **Juliafreitas0501s/Juliafreitas0501s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
